@@ -1,8 +1,8 @@
 ![photo_2024-12-20_16-08-42](https://github.com/user-attachments/assets/dc9dfe6b-e514-458a-8b68-eb3c07344be1)
-ㅤ![](https://64.media.tumblr.com/5196acefe25bbf3e61cf4f1d2174ca6f/074ea6737b8d636b-2b/s100x200/4a84dc126872ace68e14ef25545baa6d4104e877.pnj)
+ㅤㅤ![](https://64.media.tumblr.com/5196acefe25bbf3e61cf4f1d2174ca6f/074ea6737b8d636b-2b/s100x200/4a84dc126872ace68e14ef25545baa6d4104e877.pnj)
 ![](https://64.media.tumblr.com/c33546b95f17f874a9330450c8766b75/57c01b7c1fe1c08b-5f/s100x200/2d71f011c249a6c6f3eb007e9c96925e1474794f.gifv)
 ㅤ***PLSALLKYS***ㅤ
-‼
+❗️❗️
 ㅤ***вы все долбоебища ебанные >_<*** ㅤ
 ![](https://64.media.tumblr.com/c33546b95f17f874a9330450c8766b75/57c01b7c1fe1c08b-5f/s100x200/2d71f011c249a6c6f3eb007e9c96925e1474794f.gifv)
 ![](https://64.media.tumblr.com/5196acefe25bbf3e61cf4f1d2174ca6f/074ea6737b8d636b-2b/s100x200/4a84dc126872ace68e14ef25545baa6d4104e877.pnj)
@@ -29,12 +29,36 @@
 ![](https://64.media.tumblr.com/10fc3357c53dd30012f6f041a67fb770/8cefc02fc14f3979-81/s100x200/5b0feb692f41f043dbc704be080831c0ccb839a0.gifv)
 ![](https://64.media.tumblr.com/22f29b8b5267c490b5c7b9f007c6a356/8827926dd56fd31f-a4/s75x75_c1/5b99f6f12464dec13a6441194d56301d9e1fb529.gifv)
 
-> *. обо мне: ISTJ ; холерик_флегматик ; надежный тип привязанности
+> *.  обо мне: ISTJ ; холерик_флегматик ; надежный тип привязанности
 ![](https://64.media.tumblr.com/dcd3edf4d7b517b5487efc25128d069e/00fb8ddee1cc3f2b-f1/s75x75_c1/f03a94c47ebb63f8fad638bdf6442590fbc8013e.gifv)
 ![](https://private-user-images.githubusercontent.com/207447482/433386814-6a499e16-1e1b-403e-8140-c58b05408122.jpg?jwt=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NDQ2Njk3MDQsIm5iZiI6MTc0NDY2OTQwNCwicGF0aCI6Ii8yMDc0NDc0ODIvNDMzMzg2ODE0LTZhNDk5ZTE2LTFlMWItNDAzZS04MTQwLWM1OGIwNTQwODEyMi5qcGc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUwNDE0JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MDQxNFQyMjIzMjRaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0xMzU4N2U5MzlkMjkxN2UzZTBkMTliMTgwZjAyYzI1ZTA1YTliMjM1NjMxZmU4OTNhZWU5MWExYjQ2Y2EyZGFhJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.kboluRLM-CcxCutg1GhYzoPkRn9KHz3Ok_5o24H_Ekc)
 ![](https://camo.githubusercontent.com/92052fbb07f2704a2094d7d30d1c486fee1b5a55bb2aefe107262858b532480a/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f37343538316434386637333737653662326438393732316333306166346239352f373364623432373964396564633530662d38632f73313030783230302f393163336436613736353539383865343137623937393366643534663437383732346531343431632e67696676)
 ![](https://64.media.tumblr.com/013c31d058587f62799e8d07e0580a42/03dea6320b0ffd94-2f/s75x75_c1/de3b8429162e360ef7fce51f7f7558e2f174f4f7.gifv)
 ![](https://64.media.tumblr.com/3b4630a615ea817cb7c98fe478142fa4/973ae65da9442ff7-03/s75x75_c1/a2b1805a84acd70ea24758b85c8610adf40ceb9f.gifv)
+
+*.  др: 18.05 ‼ 
+![1744670531677](https://github.com/user-attachments/assets/d8baab6c-37ad-436c-964a-d3a7e04109e8)
+
+
+
+> *.  мои фд: ....
+
+> *.  мой плейлист: ....
+
+> [*.  ❗️❗️❗️ доп. DNI: .... ]
+
+
+![0-1](https://github.com/user-attachments/assets/3811ac8e-d09f-463e-95a1-acfd60a3d45b)
+![main](https://github.com/user-attachments/assets/e261f694-5555-40a2-89f1-83a44e4b7c0f)
+![Futa_T2_chibi_transparent](https://github.com/user-attachments/assets/9216767b-ad96-436d-a50c-abdca76b2f9d)
+
+ок я еще не заполнил фуллово
+
+
+
+
+
+
 
 
 

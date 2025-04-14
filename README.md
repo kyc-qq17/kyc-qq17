@@ -1,7 +1,7 @@
 ![photo_2024-12-20_16-08-42](https://github.com/user-attachments/assets/dc9dfe6b-e514-458a-8b68-eb3c07344be1)
-![](https://64.media.tumblr.com/5196acefe25bbf3e61cf4f1d2174ca6f/074ea6737b8d636b-2b/s100x200/4a84dc126872ace68e14ef25545baa6d4104e877.pnj)
+ㅤ![](https://64.media.tumblr.com/5196acefe25bbf3e61cf4f1d2174ca6f/074ea6737b8d636b-2b/s100x200/4a84dc126872ace68e14ef25545baa6d4104e877.pnj)
 ![](https://64.media.tumblr.com/c33546b95f17f874a9330450c8766b75/57c01b7c1fe1c08b-5f/s100x200/2d71f011c249a6c6f3eb007e9c96925e1474794f.gifv)
-ㅤ***умрите все нахуй***ㅤ
+ㅤ***PLSALLKYS***ㅤ
 ‼
 ㅤ***вы все долбоебища ебанные >_<*** ㅤ
 ![](https://64.media.tumblr.com/c33546b95f17f874a9330450c8766b75/57c01b7c1fe1c08b-5f/s100x200/2d71f011c249a6c6f3eb007e9c96925e1474794f.gifv)
@@ -18,5 +18,18 @@
 подпiсон на мой гитхаб пж. a_a
 
 ##
+
+![photo_2025-04-13_21-10-27](https://github.com/user-attachments/assets/3581c09c-7e2d-420c-860e-8f061c908b0b)
+
+ㅤㅤㅤ![](https://64.media.tumblr.com/22f29b8b5267c490b5c7b9f007c6a356/8827926dd56fd31f-a4/s75x75_c1/5b99f6f12464dec13a6441194d56301d9e1fb529.gifv)
+![](https://64.media.tumblr.com/10fc3357c53dd30012f6f041a67fb770/8cefc02fc14f3979-81/s100x200/5b0feb692f41f043dbc704be080831c0ccb839a0.gifv)
+![](https://64.media.tumblr.com/8daa24fcc635dad9313ab17b1501ca5d/8cefc02fc14f3979-24/s100x200/e4e473a9c92a7f23e5d3809236d04fd9ce2425ca.gifv)
+![](https://64.media.tumblr.com/af7e32b011bc41c33a3b02c19cb12d60/3c5627d4c46ff0c7-e7/s75x75_c1/149dd697fc89a62311d725573c29d04ea0c25d1a.gifv)
+![](https://64.media.tumblr.com/8daa24fcc635dad9313ab17b1501ca5d/8cefc02fc14f3979-24/s100x200/e4e473a9c92a7f23e5d3809236d04fd9ce2425ca.gifv)
+![](https://64.media.tumblr.com/10fc3357c53dd30012f6f041a67fb770/8cefc02fc14f3979-81/s100x200/5b0feb692f41f043dbc704be080831c0ccb839a0.gifv)
+![](https://64.media.tumblr.com/22f29b8b5267c490b5c7b9f007c6a356/8827926dd56fd31f-a4/s75x75_c1/5b99f6f12464dec13a6441194d56301d9e1fb529.gifv)
+
+
+
 
 

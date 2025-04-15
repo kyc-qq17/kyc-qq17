@@ -50,7 +50,8 @@
 
 ![0-1](https://github.com/user-attachments/assets/3811ac8e-d09f-463e-95a1-acfd60a3d45b)
 ![main](https://github.com/user-attachments/assets/e261f694-5555-40a2-89f1-83a44e4b7c0f)
-![Futa_T2_chibi_transparent](https://github.com/user-attachments/assets/9216767b-ad96-436d-a50c-abdca76b2f9d)
+![Mikoto_T2_chibi_transparent](https://github.com/user-attachments/assets/63c58110-3c7e-4759-830c-e2ad001b3624)
+
 
 ок я еще не заполнил фуллово
 
